@@ -3,3 +3,5 @@
 - 🌱 I’m currently learning ...web3.0 and Industry 4.0
 - 💞️ I’m looking to collaborate on ...web3.0
 - 📫 How to reach me ...kagadeakshay0211@gmail.com
+- I love running , swimming and taekwando.
+- I enjoy cricket.
