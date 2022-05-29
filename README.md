@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...web3.0
 - 📫 How to reach me ...kagadeakshay0211@gmail.com
 - I love running , swimming and taekwando.
-- I enjoy cricket.
+- Looking forward for learn and explore open water swimming , Triathalon.
